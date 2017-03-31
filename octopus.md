@@ -2,6 +2,6 @@
 
 #OLLY#
 
-Olly is  12 years old and from the pacific. He wears a cowboy hat and glasses.
+Olly is  12 years old from the pacific. He wears a cowboy hat and glasses. He also has grown a very distinguished mustache.
 
 
